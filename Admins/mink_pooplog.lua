@@ -1,1 +1,3 @@
--- 20:09 - Pretty solid - Stuck. - 2nd shit of the day
+-- 20:09 June 8th - Pretty solid - Stuck. - 2nd shit of the day
+-- 12:38 June 9th - Nice porridge texture - 1st shit of the day
+-- 21:24 June 9th - Defo more solid than the first one - 2nd shit of the day
